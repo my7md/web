@@ -1,1 +1,1 @@
-Site was created at 11/05/2024
+This web-site is for my games. Started creating at 12/05/2024
